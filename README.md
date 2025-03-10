@@ -1,1 +1,2 @@
-# -Inestabilidad-geopol-tica-y-econom-a-global
+# -Inestabilidad-geopol-tica-y-economía-global
+Las tensiones en Medio Oriente afectan los mercados financieros, el comercio y el costo de bienes esenciales. El aumento de precios del petróleo y las sanciones económicas generan incertidumbre y volatilidad. Empresas y consumidores enfrentan costos más altos, mientras que las economías emergentes sufren por la falta de inversión. La crisis geopolítica redefine el equilibrio global.
